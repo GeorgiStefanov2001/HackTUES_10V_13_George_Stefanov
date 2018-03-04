@@ -1,1 +1,1 @@
-# HackTUES_10V_13_George_Stefanov
+az sum pas
